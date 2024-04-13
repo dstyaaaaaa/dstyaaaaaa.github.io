@@ -1,2 +1,2 @@
-# dstyaaaaaa.github.io
-bling~🪄
+# Welcome to __ WORLD🌏
+Some random thoughts, useful or unuseful, about bio/programming/life...
